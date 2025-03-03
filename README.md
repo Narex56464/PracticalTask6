@@ -1,5 +1,0 @@
-![изображение](https://github.com/user-attachments/assets/8d742089-8eb6-4073-a5c2-d3341d250baf)
-![изображение](https://github.com/user-attachments/assets/03bd84c7-c02a-4239-879c-ede6a71e4894)
-![изображение](https://github.com/user-attachments/assets/2c9f5639-0741-4c33-b728-e75ce2db0f5c)
-![изображение](https://github.com/user-attachments/assets/2e1e3297-5e2f-4bb6-be36-20d0db1587b6)
-![изображение](https://github.com/user-attachments/assets/3306cd9e-5edc-4a5d-b8d4-36fcff6f1ade)
